@@ -1,16 +1,13 @@
-### Hi there 👋
+# Hello There!
 
-<!--
-**MarlaStemper/MarlaStemper** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+My name is Marla Stemper and I am currently an Administrative Analyst for a large geothermal power company based in Reno, NV.
+However, I recently discovered SQL and other data analysis procedures and something clicked! It's basically math with words and I have always been good at both. 
+I decided to change career paths and pursue this new dream. Coming from years of experience in Administrative and Accounting roles as well as a degree in Managerial and Organization Communication, 
+I never thought I would say that, but here I am. Nerd-ing out and loving it!
 
-Here are some ideas to get you started:
+**FUN FACTS** 😊
+- I love the outdoors. Anything from camping to fishing to off-roading, being outside is my happy place.
+- My favorite newfound hobbies are cooking, playing pickleball, and reading (this is a resurfaced old hobby, but still).
+- I am an extroverted introvert. Meaning that I get reenergized from time alone, but I can be a real talker! Let's chat!
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+*Feel free to check out more about my work history on [LinkedIn](www.linkedin.com/in/marla-stemper-aa1309114)*
