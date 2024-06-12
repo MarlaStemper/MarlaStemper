@@ -7,7 +7,7 @@ I never thought I would say that, but here I am. Excited to take this new step i
 
 **FUN FACTS** 😊
 - I love the outdoors. Anything from camping to fishing to off-roading, being outside is my happy place.
-- My current favorite hobbies include cooking, playing pickleball, and reading..
+- My current favorite hobbies include cooking, playing pickleball, reading and (as always) spending time with my husband.
 - I am an extroverted introvert. Meaning that I get reenergized from time alone, but I can be a real talker! Let's chat!
 
 *Feel free to check out more about my work history on [LinkedIn](www.linkedin.com/in/marla-stemper-aa1309114)*
